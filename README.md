@@ -1,2 +1,22 @@
 # NEW
 OLD
+DFS
+DSF
+DSF
+DF
+DF
+D
+FD
+FD
+F
+S
+F
+F
+SF
+SFS
+DFD
+F
+F
+DFS
+F
+S
